@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - whatsapp +254792803063
+- instagram @_kevkaranja
 
 <!---
 trevorMaina/trevorMaina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
